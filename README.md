@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TheDeadGuy
+- 👋 Hi, I’m @HariComputes
 - 👀 I’m interested in Tech, Vehicles, DIY and gaming
 - 🌱 I’m currently learning as I go
 
